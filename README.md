@@ -1,1 +1,1 @@
-# dima privet
+# dima privet. Kak dela
